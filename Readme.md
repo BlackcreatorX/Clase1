@@ -1,1 +1,1 @@
-Readme para la clase repositorios con el profesor zukko y esta muy chido 
+Readme para la clase repositorios con el profesor zukko y esta muy padre
